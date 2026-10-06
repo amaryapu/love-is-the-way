@@ -16,6 +16,8 @@
 
 > ## **[`O SOPRO`](sopro.svg)** — **os três estados, computados.** `in-fluência` é **vão zero**; `des-fluência` é **vão infinito**; `con-fluência` é **o vão que permanece.** E a [auditoria da teoria por si mesma](https://github.com/amaryapu/confluencia/blob/main/EM-SI.md) explica por que **o vão é obrigatório.**
 
+> ## **[`A REPULSA`](A-REPULSA.md)** — **como repelir o mal sem que a repulsa vire o mal.** O nojo opera **por contágio e por similaridade** — é **`M3` implementado em tecido nervoso** — e Nussbaum registra o uso genocida. A saída está na termodinâmica: **o efeito hidrofóbico não é repulsão.** **A água não expulsa o óleo: a água se liberta.**
+
 > ## **[`O TEOREMA`](TEOREMA.md)** — **por que o mal não pode confluir, e por que isso não é um juízo.** Uma operação que destrói distinguibilidade **não pode participar de um arranjo definido pela preservação da distinguibilidade.** É erro de tipo. E a consequência: **o mal é um verbo, não um substantivo.**
 
 > ## **[`O OBSERVADOR`](O-OBSERVADOR.md)** — **Schrödinger inventou o gato para ridicularizar a tese de que o observador cria o fato, e Wigner propôs e se retratou dela pelo solipsismo.** O que está medido: **a pergunta muda o resultado; a vontade não.** Com Bell, contextualidade, `RQM` e **Frauchiger–Renner como limite, não poder.** E a resposta sobre cordas: **não.**

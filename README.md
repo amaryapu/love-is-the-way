@@ -12,6 +12,8 @@
 
 > ## **[`O TEOREMA`](TEOREMA.md)** — **por que o mal não pode confluir, e por que isso não é um juízo.** Uma operação que destrói distinguibilidade **não pode participar de um arranjo definido pela preservação da distinguibilidade.** É erro de tipo. E a consequência: **o mal é um verbo, não um substantivo.**
 
+> ## **[`O OBSERVADOR`](O-OBSERVADOR.md)** — **Schrödinger inventou o gato para ridicularizar a tese de que o observador cria o fato, e Wigner propôs e se retratou dela pelo solipsismo.** O que está medido: **a pergunta muda o resultado; a vontade não.** Com Bell, contextualidade, `RQM` e **Frauchiger–Renner como limite, não poder.** E a resposta sobre cordas: **não.**
+
 > ## **[`O INFINITO`](O-INFINITO.md)** — **Ramanujan e Hardy: um hindu devoto e um ateu, por anos, sem que nenhum virasse o outro.** Confluência no sentido estrito — e **o caso que salva a etiqueta `[DECLARADO]`.**
 
 ---

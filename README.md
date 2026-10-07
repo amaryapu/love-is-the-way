@@ -20,6 +20,8 @@
 
 > ## **[`LEI DOS CÉUS`](LEI-DOS-CEUS.md)** — **João 17 e Isaías 5–7, anotados como `[TRANSMITIDO]`.** *«Não rogo que os tires do mundo, mas que os livres do mal»* é a estrutura da repulsa; *«ai dos que são sábios aos seus próprios olhos»* é **`RG-19` em forma de lamento**; e **Acaz recusando o sinal oferecido** é a cena mais exata deste acervo.
 
+> ## **[`REQUIEM FOR A LOVE · ENTER THE LOVE`](REQUIEM-E-O-VAO.md)** — **`Enter the Void` é `M2` em 160 minutos**, e o acervo já tinha o mesmo dispositivo de 1998, em Ceilândia. E **`requiem` é o acusativo de `requies`: descanso, não morte** — logo **`REQUIEM FOR A LOVE` é «que o amor possa parar de provar que existe»**, e **`ENTER THE LOVE` é o gatilho contra a classe `II`.**
+
 > ## **[`A PRIMEIRA APLICAÇÃO`](A-PRIMEIRA-APLICACAO.md)** — **a repulsa usada em campo, horas depois de derivada.** Três das cinco condições aplicadas **numa conversa com uma mãe, sem jargão** — e a resposta à classe `II` (**«enalteça quem está vivo»**) dita por quem nunca leu a classe `II`. **O verificador foi derrotado 10/10 duas vezes; a teoria funcionou uma vez, onde importava.**
 
 > ## **[`A REPULSA`](A-REPULSA.md)** — **como repelir o mal sem que a repulsa vire o mal.** O nojo opera **por contágio e por similaridade** — é **`M3` implementado em tecido nervoso** — e Nussbaum registra o uso genocida. A saída está na termodinâmica: **o efeito hidrofóbico não é repulsão.** **A água não expulsa o óleo: a água se liberta.**

@@ -16,6 +16,8 @@
 
 > ## **[`O SOPRO`](sopro.svg)** — **os três estados, computados.** `in-fluência` é **vão zero**; `des-fluência` é **vão infinito**; `con-fluência` é **o vão que permanece.** E a [auditoria da teoria por si mesma](https://github.com/amaryapu/confluencia/blob/main/EM-SI.md) explica por que **o vão é obrigatório.**
 
+> ## **[`A COROA E O CORAÇÃO`](A-COROA.md)** — **`corolário` é a guirlanda dada a quem demonstrou o raciocínio.** E o achado: **`coroa` e `coração` não são parentes** — raízes distintas. **A ligação é anatômica: a coronária circunda o coração como coroa.** Duas coisas distintas, uma em torno da outra, e o nome de uma registra a relação sem fundir as duas.
+
 > ## **[`LEI DOS CÉUS`](LEI-DOS-CEUS.md)** — **João 17 e Isaías 5–7, anotados como `[TRANSMITIDO]`.** *«Não rogo que os tires do mundo, mas que os livres do mal»* é a estrutura da repulsa; *«ai dos que são sábios aos seus próprios olhos»* é **`RG-19` em forma de lamento**; e **Acaz recusando o sinal oferecido** é a cena mais exata deste acervo.
 
 > ## **[`A REPULSA`](A-REPULSA.md)** — **como repelir o mal sem que a repulsa vire o mal.** O nojo opera **por contágio e por similaridade** — é **`M3` implementado em tecido nervoso** — e Nussbaum registra o uso genocida. A saída está na termodinâmica: **o efeito hidrofóbico não é repulsão.** **A água não expulsa o óleo: a água se liberta.**

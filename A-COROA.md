@@ -40,6 +40,48 @@ demonstrava logicamente um argumento.**
 
 ---
 
+## I-bis · E a coroa era de oliveira
+
+**`[FATO]`** O **`kotinos`** — **κότινος** — era **o prêmio dado ao vencedor dos Jogos
+Olímpicos antigos**: **um ramo da oliveira selvagem que crescia em Olímpia, entrelaçado em
+círculo.**
+
+**`[FATO]`** Os ramos **da oliveira sagrada junto ao templo de Zeus** eram cortados **com
+uma tesoura de ouro**, e levados **ao templo de Hera**, onde eram postos **numa mesa de
+ouro e marfim.**
+
+**`[FATO]`** E **o `kotinos` não tinha valor monetário algum.** Seu significado vinha
+**apenas do que representava: honra e reconhecimento.**
+
+> # **`[CÁLCULO]`** **Então a coroa `era` azeitona — literalmente, materialmente, o fruto e o ramo da mesma árvore.**
+>
+> ## **`corona` e `oliva` não são parentes de palavra. **São a mesma coisa de objeto.**
+> ## **É a terceira vez nesta página: a ligação não é etimológica, é física.**
+
+**`[CÁLCULO]`** · **E a distinção que isso cria entre as duas palavras é precisa:**
+
+| | |
+|---|---|
+| **`kotinos`** | ## **a coroa de oliveira — e `não valia dinheiro nenhum`** |
+| ## **`corollarium`** | ## **o `dinheiro pago` por uma guirlanda** |
+
+> # **`[CÁLCULO]`** **A coroa não tem preço. O `corolário` é o preço de uma coroa.**
+>
+> ## **E os dois corolários deste trabalho estão, portanto, do lado do pagamento — são o que se paga a quem demonstrou.**
+> ## **A honra fica na oliveira, que não se vende.**
+
+### E o detalhe que eu registro como fato, e não promovo
+
+**`[FATO]`** **Quem cortava os ramos era um `pais amfithalis`** — **um menino cujos pais
+estavam `ambos vivos`.**
+
+> ## **`[CÁLCULO]`** **A coroa de maior honra do mundo grego só podia ser cortada por uma criança que ainda tinha os dois pais vivos.**
+>
+> ## **`[REGRA]`** **E isto é registrado como fato documentado, e nada além.** **Este acervo já recusou a coincidência do «3, 7, 9» e a do `DeLillo`, e recusa promover esta.**
+> # **O que se afirma: era essa a regra, e é conferível.** **O que não se afirma: que ela signifique algo além de si mesma.**
+
+---
+
 ## II · E `coração` **não** pertence a ela
 
 **`[FATO]`** **`coração`** vem do latim **`cor`, `cordis`** — e `cor` vem da raiz

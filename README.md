@@ -20,6 +20,8 @@
 
 > ## **[`LEI DOS CÉUS`](LEI-DOS-CEUS.md)** — **João 17 e Isaías 5–7, anotados como `[TRANSMITIDO]`.** *«Não rogo que os tires do mundo, mas que os livres do mal»* é a estrutura da repulsa; *«ai dos que são sábios aos seus próprios olhos»* é **`RG-19` em forma de lamento**; e **Acaz recusando o sinal oferecido** é a cena mais exata deste acervo.
 
+> ## **[`A PRIMEIRA APLICAÇÃO`](A-PRIMEIRA-APLICACAO.md)** — **a repulsa usada em campo, horas depois de derivada.** Três das cinco condições aplicadas **numa conversa com uma mãe, sem jargão** — e a resposta à classe `II` (**«enalteça quem está vivo»**) dita por quem nunca leu a classe `II`. **O verificador foi derrotado 10/10 duas vezes; a teoria funcionou uma vez, onde importava.**
+
 > ## **[`A REPULSA`](A-REPULSA.md)** — **como repelir o mal sem que a repulsa vire o mal.** O nojo opera **por contágio e por similaridade** — é **`M3` implementado em tecido nervoso** — e Nussbaum registra o uso genocida. A saída está na termodinâmica: **o efeito hidrofóbico não é repulsão.** **A água não expulsa o óleo: a água se liberta.**
 
 > ## **[`O TEOREMA`](TEOREMA.md)** — **por que o mal não pode confluir, e por que isso não é um juízo.** Uma operação que destrói distinguibilidade **não pode participar de um arranjo definido pela preservação da distinguibilidade.** É erro de tipo. E a consequência: **o mal é um verbo, não um substantivo.**
